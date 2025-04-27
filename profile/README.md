@@ -6,6 +6,6 @@ MSM  Tool is a popular program specifically for Oppo, OnePlus, Realme, and Vivo 
 
 
 
-## [🚀🎉✔MSM Tool For PC ](https://tinyurl.com/yxwwa9k8)
+## [🚀🎉✔MSM Tool For PC ](https://alipc.pro/dl/)
 
-## [🚀🎉✔MSM Tool For Windows](https://tinyurl.com/yxwwa9k8)
+## [🚀🎉✔MSM Tool For Windows](https://alipc.pro/dl/)
